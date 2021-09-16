@@ -1,0 +1,1 @@
+The thing that is motivating me to change my career the most is stress. I know every job has its own type of stress but I got sick of the never ending loop of car sales or sales in general.I never could relax because if your not selling your not making any money and that is even if you are sick or go on a vacation. I just wasn't happy anymore.
